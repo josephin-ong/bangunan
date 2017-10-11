@@ -1,4 +1,4 @@
-[DAMDEX](https://tokobangunanku.id/product/damdex) adalah bahan pencampur semen (additive) yang menghasilkan pelapis, perekat, dan penambal tahan air dengan sifat-sifat unggul sehingga mampu melindungi bangunan dengan efisien dan efektif. Diproduksi oleh [PT. Prima Graha](www.damdexindonesia.com)
+[DAMDEX](https://tokobangunanku.id/product/damdex) adalah bahan pencampur semen (additive) yang menghasilkan pelapis, perekat, dan penambal tahan air dengan sifat-sifat unggul sehingga mampu melindungi bangunan dengan efisien dan efektif. Diproduksi oleh [PT. Prima Graha](http://www.damdexindonesia.com)
 
 Damdex adalah cairan kimia yang berfungsi sebagai bahan aditif dalam campuran mortar atau portland cement (cement base). Damdex yang dicampur dengan mortar/semen akan meningkatkan kecepatan beku campuran semen, meningkatkan kualitas dan kuat tekan beton, meningkatkan kuat lekat campuran mortar/semen dan sekaligus menjadikan campuran mortar/semen bersifat kedap air yang tahan sinar ultra violet. Dengan campuran air yang encer maka campuran akan mudah masuk ke dalam rongga-rongga retakan bangunan.
 
@@ -29,21 +29,4 @@ Setelah merata, campurkan DAMDEX dan aduk  kembali hingga merata. Campuran siap 
 CARA PENGERJAAN
 
 Pada permukaan yang sudah dibersihkan dan dibasahi (sudah lembab), lakukan pelapisan menggunakan kuas/ rol dengan 2 kali lapis: Pertama secara vertikal, tunggu hingga kering, kemudian secara horizontal.
-Untuk media dak lantai beton, setelah dilapis (coating) perlu di”curing” secara bertahap untuk hasil terbaik.
-
-PLESTERAN & PEMASANGAN BATA YANG ANTI BOCOR (WATERPROOFING)
-
-Untuk mengerjakan plesteran dan pemasangan batu bata/ batako/ bata ringan yang bersifat anti bocor.
-
-Cara Pencampuran
-
-1. Campurkan semen, pasir dan air terlebih dahulu sesuai komposisi yang sudah ditentukan. Lalu aduk sampai merata.
-2. Tuangkan DAMDEX  sesuai takaran, ke dalam campuran lalu aduk kembali sampai merata. Campuran harus segera dipakai.
-
-Cara Pengerjaan
-
-1. Segera lakukan pengerjaan plesteran ke permukaan dengan baik, padat dan merata.
-2. Ratakan permukaan plesteran kemudian gosok permukaannya.
-3. Sama seperti pekerjaan plesteran dan pemasangan batu bata/ batako/ bata ringan pada umumnya.
-
-[Klik di sini untuk membeli damdex](https://tokobangunanku.id/product/damdex)
+Untuk m
