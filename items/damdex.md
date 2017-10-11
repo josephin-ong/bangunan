@@ -48,4 +48,4 @@ Untuk mengerjakan plesteran dan pemasangan batu bata/ batako/ bata ringan yang b
 3. Sama seperti pekerjaan plesteran dan pemasangan batu bata/ batako/ bata ringan pada umumnya.
 
 ### Distributor
-[Klik di sini untuk membeli damdex](https://tokobangunanku.id/product/damdex
+[Klik di sini untuk membeli damdex](https://tokobangunanku.id/product/damdex)
