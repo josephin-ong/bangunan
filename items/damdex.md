@@ -1,4 +1,4 @@
-DAMDEX adalah bahan pencampur semen (additive) yang menghasilkan pelapis, perekat, dan penambal tahan air dengan sifat-sifat unggul sehingga mampu melindungi bangunan dengan efisien dan efektif.
+[DAMDEX](https://tokobangunanku.id/product/damdex) adalah bahan pencampur semen (additive) yang menghasilkan pelapis, perekat, dan penambal tahan air dengan sifat-sifat unggul sehingga mampu melindungi bangunan dengan efisien dan efektif. Diproduksi oleh [PT. Prima Graha](www.damdexindonesia.com)
 
 Damdex adalah cairan kimia yang berfungsi sebagai bahan aditif dalam campuran mortar atau portland cement (cement base). Damdex yang dicampur dengan mortar/semen akan meningkatkan kecepatan beku campuran semen, meningkatkan kualitas dan kuat tekan beton, meningkatkan kuat lekat campuran mortar/semen dan sekaligus menjadikan campuran mortar/semen bersifat kedap air yang tahan sinar ultra violet. Dengan campuran air yang encer maka campuran akan mudah masuk ke dalam rongga-rongga retakan bangunan.
 
